@@ -6,4 +6,4 @@
 
 📫 How to reach me: [sheikhyasirali007@gmail.com] or connect with me on [https://www.linkedin.com/in/yasir-ali-402594205/].
 
-⚡ Fun fact: Beyond AI, I’m a data enthusiast who believes every dataset tells a story — and I’m also passionate about cooking and running my Desi Ghee business!
+⚡ Fun fact: Beyond AI, I’m a data enthusiast who believes every dataset tells a story — and I’m also passionate about business and running my Desi Chicken business!
